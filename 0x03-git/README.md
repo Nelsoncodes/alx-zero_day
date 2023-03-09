@@ -1,2 +1,2 @@
 Believe
-Nelson says so
+Nelson said
